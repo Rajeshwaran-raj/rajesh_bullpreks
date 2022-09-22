@@ -1,2 +1,0 @@
-# rajesh_bullpreks
-
